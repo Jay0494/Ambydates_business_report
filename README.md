@@ -68,7 +68,7 @@ Consider diversifying the product portfolio to smooth out seasonality effects. I
 
 
 
-**RECOMMENDATION TO IMPROVE SALES GROWTH IN 6 MONTHS**
+# **RECOMMENDATION TO IMPROVE SALES GROWTH IN 6 MONTHS**
 
 
 
