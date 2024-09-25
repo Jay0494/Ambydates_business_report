@@ -72,7 +72,7 @@ Consider diversifying the product portfolio to smooth out seasonality effects. I
 
 
 
-To increase sales growth over the next 6 months,the following recommendations aim to stabilize and grow sales despite these challenges:
+To increase sales growth over the next 6 months,the following recommendations aim to stabilize and grow sales despite the current economic challenges:
 
 1. Leverage Seasonal Demand (Prepare for Ramadan)
 
