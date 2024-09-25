@@ -1,4 +1,4 @@
-# Ambydates_business_report
+# **Business Report**
 ![Screenshot_20240924-182516_Power BI](https://github.com/user-attachments/assets/f9c566f7-508f-4beb-bbb0-bdeb8688de60)
 
 Insights:
