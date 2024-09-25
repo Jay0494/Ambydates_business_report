@@ -63,7 +63,7 @@ Consider diversifying the product portfolio to smooth out seasonality effects. I
 
 
 
-
+**RECOMMENDATION TO IMPROVE SALES GROWTH IN 6 MONTHS**
 
 To increase sales growth over the next 6 months,the following recommendations aim to stabilize and grow sales despite these challenges:
 
